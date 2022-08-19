@@ -1,3 +1,3 @@
 # repozitorium1
 moj prvi repozitorium
-ich komme nach Klagenfurt
+Prvi issuje je da je neko pojeo cokoladu
